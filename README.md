@@ -9,3 +9,4 @@ A 50 kilós veréb a villamosdróton azt mondja, hogy nagyon jól érzi magát, 
   gcdgvcgvreisa
   ugawuguga
  
+
