@@ -8,5 +8,5 @@ A 50 kilós veréb a villamosdróton azt mondja, hogy nagyon jól érzi magát, 
 
   uzawagcdgvcgvreisa
   ugawuguga
- Van szög?? van
+ Van szög?? NINCS >:(
 vanszög van szög van szög
