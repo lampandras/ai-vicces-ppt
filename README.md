@@ -10,4 +10,4 @@ A 50 kilós veréb a villamosdróton azt mondja, hogy nagyon jól érzi magát, 
   ugawuguga
  Van szög?? NINCS >:( DE VAN  
 vanszög van szög van szög
-a bőröm alatt
+a bőröm alatt 
